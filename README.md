@@ -9,4 +9,5 @@ etc
 
 wow very **nice**
 
-![] https://calgary.ctvnews.ca/okotoks-named-bee-friendly-city-by-national-organiztion-1.5440928 )
+![] https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.wired.com%2Fstory%2Fa-mushroom-extract-might-save-bees-from-a-killer-virus%2F&psig=AOvVaw0uQwaTI22zH0OI7sUmGIXg&ust=1622014256795000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCLDq246o5PACFQAAAAAdAAAAABAD![Uploading image.png…])
+
