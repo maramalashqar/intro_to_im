@@ -8,3 +8,4 @@ etc
 **wow**
 
 wow very **nice**
+![] https://calgary.ctvnews.ca/okotoks-named-bee-friendly-city-by-national-organiztion-1.5440928)
