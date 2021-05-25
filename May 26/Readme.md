@@ -1,1 +1,1 @@
-
+Remembering the different values for each set of numbers was slightly confusing at the start, however that got easier the more i went on. I would have liked to add more details to my face, such as eyes and a mouth, however i could not figure out how to create thoe shapes, as well as how to change the eyes. For example i tried to make smaller circles from my eyes, but the circle would just end up being larger than i want and would overlap the circle for my face. 
